@@ -48,7 +48,7 @@ As your worker, I'd like to be paid in bitcoins, more than gold & silver.
 
 >Feb 5th 2017, the proposed date for vapes in standard to be considered, rather than 2006. FDA wants 2006, prevents safer mods.
 
-So, the FDA wants vapes from 2006 to be the accepted sort, however another group wishes for it to be from 2017 and before -- findings that prevent battery health, and coil burn from 2007-* could be lost to the market for now if so.
+So, the FDA wants vapes from 2006 to be the accepted sort, however another group wishes for it to be from 2017 and before -- findings for battery health, and coil burn from 2007-* could be lost to the market for now if so.
 
 *This Week in Drugs: (adding number later)*
 
